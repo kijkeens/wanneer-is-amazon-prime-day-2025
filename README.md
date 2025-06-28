@@ -10,14 +10,14 @@ En het beste? De deals zijn exclusief voor Amazon Prime-leden! Dus als je nog ge
 
 ## Wanneer is het?
 
-In 2025 vindt **Amazon Prime Day** hoogstwaarschijnlijk plaats op **15 juli 2025**, wat overeenkomt met de derde dinsdag van juli. Maar let op: de exacte datum kan nog wijzigen. Het is dus verstandig om deze datum alvast in je agenda te markeren en de aankondigingen van Amazon in de gaten te houden.
+In 2025 vindt **Amazon Prime Day** plaats op **8 t/m 11 juli 2025**, Maar let op: de exacte datum kan nog wijzigen. Het is dus verstandig om deze datum alvast in je agenda te markeren en de aankondigingen van Amazon in de gaten te houden.
 
 Hier een kort overzicht van de data:
 
 | Datum         | Activiteit                     |
 |---------------|--------------------------------|
-| 15 juli 2025  | Start Amazon Prime Day         |
-| 16 juli 2025  | Einde Amazon Prime Day         |
+| 8 juli 2025  | Start Amazon Prime Day         |
+| 11 juli 2025  | Einde Amazon Prime Day         |
 
 ## Tips voor het maximale uit Prime Day
 
